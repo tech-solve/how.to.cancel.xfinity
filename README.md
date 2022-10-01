@@ -1,6 +1,6 @@
 # How to Cancel Xfinity?
 
-[![how to cancel xfinity](redd.png)](https://github.com/tech-solve/how.to.take.a.screenshot.on.a.macbook.pro)
+[![how to cancel xfinity](redd.png)](https://github.com/tech-solve/how.to.cancel.xfinity)
 
 
 
